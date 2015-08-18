@@ -1,2 +1,2 @@
-# hello-world89
-Panamá
+to mine..
+doge party thank all regards.
